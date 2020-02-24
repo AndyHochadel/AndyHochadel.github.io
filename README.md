@@ -1,1 +1,0 @@
-# AndyHochadel.github.io
